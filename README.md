@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ahnafhamim1
+- 👀 I’m interested in Notion real estate dashboard
+- 🌱 I’m currently learning Notion
+- 💞️ I’m looking to collaborate on Notion creativity
+- 📫 How to reach me https://www.linkedin.com/in/md-ahnaf-hamim/
